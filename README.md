@@ -1,2 +1,2 @@
 # coming-soon
-Coming soon page forLinksnest.com
+Coming soon page for Linksnest.com
